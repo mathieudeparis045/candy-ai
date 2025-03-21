@@ -9,8 +9,8 @@ Salut à toi, gamer, streamer ou passionné de tech ! 🎮💻 Si tu es ici, c'e
 ## 🏆 Les 3 Meilleures Plateformes à Tester ABSOLUMENT
 
 1️⃣ **[Candy.AI](https://candyai.gg/home2?via=tonyo33)** - Le pionnier des chatbots NSFW  
-2️⃣ **[SpicyChat](https://spicy.chat/)** - Fun illimité avec du roleplay gratuit  
-3️⃣ **[GirlfriendGPT](https://girlfriendgpt.ai/)** - Ta waifu virtuelle personnalisable  
+2️⃣ **[SpicyChat](https://iasexe.fr/go/spicychat)** - Fun illimité avec du roleplay gratuit  
+3️⃣ **[GirlfriendGPT](https://iasexe.fr/go/girlfriendgpt)** - Ta waifu virtuelle personnalisable  
 
 ---
 
